@@ -1,1 +1,1 @@
-i am forntend web here is my profile
+i am forntend web deigner here is my profile
